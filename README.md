@@ -1,13 +1,13 @@
 # GitHub-Song
 
-### I'm your super fan
+I'm your super fan
 
-### Literally got no tan
+Literally got no tan
 
-### Though there was a frying pan
+Though there was a frying pan
 
-### Ended up getting a ban
+Ended up getting a ban
 
-### Although this makes no sense
+Although this makes no sense
 
-### I'll still end up in LAN.
+I'll still end up in LAN.
